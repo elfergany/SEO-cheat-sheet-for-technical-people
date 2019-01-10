@@ -1,7 +1,7 @@
 # SEO-cheat-sheet-for-technical-people
 
 
-![akhbarak SEO project ](https://drive.google.com/file/d/1xqDOZ-IsNgpZLDo9a_QeMjP9bnqsxSto/view?usp=sharing)
+![akhbarak SEO project ](https://i.ibb.co/pPsLCdN/akhbarka-ananlytics-screenshot.png)
 
 
 - Itroduction search engine programming. -- how to build small search engine - no code - first article
