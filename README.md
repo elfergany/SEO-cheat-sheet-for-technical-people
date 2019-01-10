@@ -9,3 +9,16 @@ for techital people
 for marketer pepople  
 - how to build keyword research
 - how to track your progress in SERP ( search engine result page ) 
+
+شكر وتقدير
+- عمرو السيد
+- رامي نبيل
+- عبد الرحمن طلب
+- محمد اسامة
+- ابراهيم السيد
+- غدير عادل
+- منار 
+- 
+- محمود عبد الفتاح
+- عثمان احمد عثمان
+- عبد العظيم احمد عثمان
