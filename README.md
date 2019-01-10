@@ -1,0 +1,1 @@
+# SEO-cheat-sheet-for-technical-people
